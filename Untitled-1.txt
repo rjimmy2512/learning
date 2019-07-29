@@ -1,1 +1,0 @@
-why always so hard to me
